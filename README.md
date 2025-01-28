@@ -1,0 +1,1 @@
+# Charged-particle-motion-around-magnetized-Schwarzschild-MOG-black-hole
